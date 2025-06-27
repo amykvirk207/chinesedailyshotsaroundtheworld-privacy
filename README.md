@@ -1,1 +1,1 @@
-# chinesedailyshotsaroundtheworld-privacy
+Privacy Policy
